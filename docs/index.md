@@ -99,6 +99,7 @@ January 2018 - September 2018
 ## Honors
 - Spring 2020 Dean's List
 - Fall 2021 Dean's List
+- Spring 2021 Dean's List
 - Brookdale Foundation and Alumni Scholarship
 
 <!-- ### Footer
